@@ -1,4 +1,4 @@
-Olá meus caros, me aprensentarei sir. Gabriel, o filho do próprio Anjo a guarda da mãe Deusa rafa , tirando o fato o Demonio christian Moreno [ moreno, cabeludo, parece micheal jackson ] nunca vai usar seus atos com a nossa Deusa, irei impedir a nova guarda, voltandoao estaca zero.
+Olá meus caros, me aprensentarei sir. Gabriel, o filho do próprio Anjo a guarda da mãe Deusa rafa , tirando o fato o Demonio christian Moreno [ moreno, cabeludo, parece micheal jackson ] nunca vai usar seus atos com a nossa Deusa, irei impedir a nova guarda, voltando ao estaca zero.
 
 
  - Estou estudndo na Alura [Alura](https://www.alura.com.br)
